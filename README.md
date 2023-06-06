@@ -1,1 +1,1 @@
-My first Readme
+ALX is hard 😭😭😭😭😭
